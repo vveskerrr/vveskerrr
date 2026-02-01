@@ -10,4 +10,4 @@
 
                       𝙺𝚞𝚍𝚘𝚜 : ʙᴇʟᴏᴠᴇᴅ; ʟᴜᴄɪ & ᴇᴠɪʟ ᴄʟᴏꜱᴇ ɢᴀʏ; ᴏᴊ
 <img width="1050" height="36" alt="tumblr_1e2e1e7f5b6c725813425e770412e76e_3e71b84d_1280" src="https://github.com/user-attachments/assets/8bf08911-6053-465f-89ec-7d28d2921886" />
-<img width="1050" height="300" alt="Screenshot_20260201_004552_edit_2463180091144453" src="https://github.com/user-attachments/assets/d24c31fc-d217-43ad-8d26-dbef8e830367" />
+<img width="1050" height="300" alt="Screenshot_20260201_004552_edit_2463180091144453" src="https://github.com/user-attachments/assets/4fd86689-1c0d-4e5e-a2de-21c9304bbb86" />
