@@ -11,7 +11,11 @@
                       𝙺𝚞𝚍𝚘𝚜 : ʙᴇʟᴏᴠᴇᴅ; ʟᴜᴄɪ & ᴇᴠɪʟ ᴄʟᴏꜱᴇ ɢᴀʏ; ᴏᴊ
                   ![](https://komarev.com/ghpvc/?username=vveskerrr&color=ff69b4&style=for-the-badge)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=m1l7gnhbf4tagx0kil5uocuqn&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color=e5386c&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=m1l7gnhbf4tagx0kil5uocuqn&redirect=true)
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=m1l7gnhbf4tagx0kil5uocuqn&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=m1l7gnhbf4tagx0kil5uocuqn&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color=e5386c&bar_color_cover=false">
+  </a>
+</p>
 
 <img width="1050" height="36" alt="tumblr_1e2e1e7f5b6c725813425e770412e76e_3e71b84d_1280" src="https://github.com/user-attachments/assets/8bf08911-6053-465f-89ec-7d28d2921886" />
 <img width="1050" height="300" alt="Untitled10_20260201011330" src="https://github.com/user-attachments/assets/c1748db9-4876-44be-9cb5-2605083e5008" />          
