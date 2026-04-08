@@ -8,7 +8,7 @@
 
                 --ꜰᴀɴᴅᴏᴍꜱ / ɪɴꜰᴏ ɪ'ᴍ ɪɴᴛᴏ & ᴅɴɪ ɪɴ ᴘᴀᴛʀᴇᴏɴ, ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄʜᴇᴄᴋ ᴛʜᴀᴛ ᴏᴜᴛ
 
-                      𝙺𝚞𝚍𝚘𝚜 : ʙᴇʟᴏᴠᴇᴅ; [![Luci](https://img.shields.io/badge/Luci-FF69B4?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/mvrninstar/about) & ᴇᴠɪʟ ᴄʟᴏꜱᴇ ɢᴀʏ; [![ᴏᴊ](https://img.shields.io/badge/ᴏᴊ-FF69B4?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/u68838958/about)
+                     𝙺𝚞𝚍𝚘𝚜 : ʙᴇʟᴏᴠᴇᴅ; [![Luci](https://img.shields.io/badge/Luci-FF69B4?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/mvrninstar/about) & ᴇᴠɪʟ ᴄʟᴏꜱᴇ ɢᴀʏ; [![ᴏᴊ](https://img.shields.io/badge/ᴏᴊ-FF69B4?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/u68838958/about)
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=m1l7gnhbf4tagx0kil5uocuqn&redirect=true">
