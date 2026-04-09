@@ -1,14 +1,47 @@
-# 𝔅𝔦𝔬
-<img width="1050" height="156" alt="tumblr_6938cb1ec9901437bf3ef9faedb7fc0d_ad175ceb_1280" src="https://github.com/user-attachments/assets/cceab19e-3aaa-47c1-8c17-95756bbf9e61" />
 
-               23   |   ᴅɪᴅ (ᴘ-ᴅɪᴅ)   |   ʙᴘᴅ   |   ᴄᴘᴛꜱᴅ   |   [ᴇɴᴅᴏꜱ ᴅɴɪ]
-                           
-                 ᴀᴠɪᴅ ᴛᴀxɪᴅᴇʀᴍʏ ᴄᴏʟʟᴇᴄᴛᴏʀ , ᴇxᴏᴛɪᴄ ᴘᴀʀʀᴏᴛ & ᴘɪɢᴇᴏɴ ᴏᴡɴᴇʀ / ʙʀᴇᴇᴅᴇʀ
-                     ᴄᴜʀʀᴇɴᴛʟʏ ᴍᴀɴᴀɢɪɴɢ ᴀ ꜰʟᴏᴄᴋ ᴏꜰ 20+ (ᴀɴᴅ ɢʀᴏᴡɪɴɢ)
+<h1 align="center">𝒞𝒜𝒮𝐸𝐹𝐼𝐿𝐸: 𝒲𝐸𝒮𝒦𝐸𝑅</h1>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/94de2db8-1bd1-4074-abc6-cb1e0e358d3e" width="45%"
 
-                --ꜰᴀɴᴅᴏᴍꜱ / ɪɴꜰᴏ ɪ'ᴍ ɪɴᴛᴏ & ᴅɴɪ ɪɴ ᴘᴀᴛʀᴇᴏɴ, ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄʜᴇᴄᴋ ᴛʜᴀᴛ ᴏᴜᴛ
+</p>
 
-                     𝙺𝚞𝚍𝚘𝚜 : ʙᴇʟᴏᴠᴇᴅ; [![Luci](https://img.shields.io/badge/Luci-FF69B4?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/mvrninstar/about) & ᴇᴠɪʟ ᴄʟᴏꜱᴇ ɢᴀʏ; [![ᴏᴊ](https://img.shields.io/badge/ᴏᴊ-FF69B4?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/u68838958/about)
+<p align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?color=FF69B4&center=true&vCenter=true&lines=ᴛʜᴇ+ᴍᴀꜱᴛᴇʀᴍɪɴᴅ;ᴛʜᴇ+ʜᴇʀᴇᴛɪᴄ+ᴡᴏʟꜰ;ᴜʀᴏʙᴏʀᴏꜱ">
+
+---
+
+<p align="center">
+  <img src="https://img.shields.io/badge/ɴᴀᴍᴇ:-ᴡɪᴛᴡᴇʀ 𐀔 ᴡᴇꜱʟᴇʏʀ-FF69B4?style=for-the-badge">
+  <img src="https://img.shields.io/badge/ᴀɢᴇ:-23-FF69B4?style=for-the-badge">
+  <img src="https://img.shields.io/badge/ᴘʀᴏɴᴏᴜɴꜱ:-ᴛʜᴇʏ/ᴛʜᴇᴍ-FF69B4?style=for-the-badge">
+  <img src="https://img.shields.io/badge/ɴᴏᴛᴇꜱ:-ᴅɪᴅ (ᴘ.ᴅɪᴅ) | ʙᴘᴅ | ᴄᴘᴛꜱᴅ | ᴇɴᴅᴏꜱ ᴅɴɪ-FF69B4?style=for-the-badge">
+</p>
+
+
+  
+
+<p align="center">
+  <img src="https://img.shields.io/badge/ᴇxᴛʀᴀꜱ:-FF69B4?style=flat-square">
+</p>
+<p align="center">
+  ᴀᴠɪᴅ ᴛᴀxɪᴅᴇʀᴍʏ ᴄᴏʟʟᴇᴄᴛᴏʀ | ᴇxᴏᴛɪᴄ ᴘᴀʀʀᴏᴛ & ᴘɪɢᴇᴏɴ ᴏᴡɴᴇʀ / ʙʀᴇᴇᴅᴇʀ  
+</p>
+
+<p align="center">
+  ꜰᴀɴᴅᴏᴍꜱ / ɪɴꜰᴏ ɪ'ᴍ ɪɴᴛᴏ & ᴅɴɪ ɪɴ  
+  <a href="https://www.patreon.com/c/vveskerrr/about">
+    <img src="https://img.shields.io/badge/patreon-FF69B4?style=flat-square&logo=patreon&logoColor=white">
+  </a>
+</p>
+
+ 
+
+
+ 
+                    𝙺𝚞𝚍𝚘𝚜 : ʙᴇʟᴏᴠᴇᴅ; [![Luci](https://img.shields.io/badge/Luci-FF69B4?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/mvrninstar/about) & ᴇᴠɪʟ ᴄʟᴏꜱᴇ ɢᴀʏ; [![ᴏᴊ](https://img.shields.io/badge/ᴏᴊ-FF69B4?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/u68838958/about)
+
+
+---
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=m1l7gnhbf4tagx0kil5uocuqn&redirect=true">
@@ -16,9 +49,19 @@
   </a>
 </p>
 
+
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/8bfbda49a622066ac423e30163f052b3/tumblr_nr55m6i7gw1qdxux9o1_500.gif">
+</p>
+
+
+<p align="center">
+  <i>“ ɪ ᴅɪᴇᴅ ᴏɴᴄᴇ. ɪ ᴡɪʟʟ ɴᴇᴠᴇʀ ꜰᴏʀɢᴇᴛ ᴛʜᴇ ᴄᴏʟᴅ, ᴅᴀʀᴋ ꜰɪɴɢᴇʀꜱ ᴏꜰ ᴅᴇᴀᴛʜ ʀᴇᴀᴄʜɪɴɢ ᴏᴜᴛ ꜰᴏʀ ᴍᴇ. . . ”</i>
+</p>
+
+  </a>
+</p>
+
                            ![](https://komarev.com/ghpvc/?username=vveskerrr&label=Kill+Count&color=ff69b4&style=for-the-badge)
 
-<img width="1050" height="36" alt="tumblr_1e2e1e7f5b6c725813425e770412e76e_3e71b84d_1280" src="https://github.com/user-attachments/assets/8bf08911-6053-465f-89ec-7d28d2921886" />
-<img width="1050" height="300" alt="Untitled10_20260201011330" src="https://github.com/user-attachments/assets/c1748db9-4876-44be-9cb5-2605083e5008" />          
-                                  ♥ ᴍʏ ʙɪʀᴅꜱ ᴀʀᴇ ꜱᴏ ᴄᴏᴏʟ! [ʙɪʀᴅʀᴏᴛᴛᴇᴅ]
-<img width="250" height="200" alt="{8C4ABBC9-BCED-4372-B0D3-B284F135BB63}" src="https://github.com/user-attachments/assets/f8203cec-df91-48b6-ab83-13ef01b84311" />
