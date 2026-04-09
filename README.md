@@ -1,7 +1,7 @@
 
 <h1 align="center">𝒞𝒜𝒮𝐸𝐹𝐼𝐿𝐸: 𝒲𝐸𝒮𝒦𝐸𝑅</h1>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/94de2db8-1bd1-4074-abc6-cb1e0e358d3e" width="45%"
+  <img src="https://github.com/user-attachments/assets/bc0f4a18-b485-457d-a758-15f914dc4af2" width="45%"
 
 </p>
 
