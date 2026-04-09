@@ -38,7 +38,7 @@
 
 
  
-                    𝙺𝚞𝚍𝚘𝚜 : ʙᴇʟᴏᴠᴇᴅ; [![Luci](https://img.shields.io/badge/Luci-FF69B4?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/mvrninstar/about) & ᴇᴠɪʟ ᴄʟᴏꜱᴇ ɢᴀʏ; [![ᴏᴊ](https://img.shields.io/badge/ᴏᴊ-FF69B4?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/u68838958/about)
+                   𝙺𝚞𝚍𝚘𝚜 : ʙᴇʟᴏᴠᴇᴅ; [![Luci](https://img.shields.io/badge/Luci-FF69B4?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/mvrninstar/about) & ᴇᴠɪʟ ᴄʟᴏꜱᴇ ɢᴀʏ; [![ᴏᴊ](https://img.shields.io/badge/ᴏᴊ-FF69B4?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/u68838958/about)
 
 
 ---
