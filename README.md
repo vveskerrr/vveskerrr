@@ -1,3 +1,6 @@
+<p align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?color=73444F&center=true&vCenter=true&width=600&pause=500&speed=200&size=30&lines=████████████████;ACCESSING...;FILE+FOUND">
+</p>
 
 <h1 align="center">𝒞𝒜𝒮𝐸𝐹𝐼𝐿𝐸: 𝒲𝐸𝒮𝒦𝐸𝑅</h1>
 <p align="center">
@@ -8,9 +11,7 @@
 <p align="center">
   <img src="https://readme-typing-svg.herokuapp.com?color=73444F&center=true&vCenter=true&lines=ᴛʜᴇ+ᴍᴀꜱᴛᴇʀᴍɪɴᴅ;ᴛʜᴇ+ʜᴇʀᴇᴛɪᴄ+ᴡᴏʟꜰ;ᴜʀᴏʙᴏʀᴏꜱ">
 
-  <p align="center">
-  <i>“ ᴄᴀɴ ɪ ʙᴇ ʏᴏᴜʀ ꜱᴀᴠɪᴏᴜʀ, ɪ'ʟʟ ʙᴇ ʏᴏᴜʀ ꜰᴀᴠᴏᴜʀɪᴛᴇ ꜱᴀɪɴᴛ. ” - ʟᴀꜱᴛ ʀɪᴛᴇꜱ - ††† (ᴄʀᴏꜱꜱᴇꜱ)</i>
-</p>
+<p align="center"> <i>“ ᴄᴀɴ ɪ ʙᴇ ʏᴏᴜʀ ꜱᴀᴠɪᴏᴜʀ, ɪ'ʟʟ ʙᴇ ʏᴏᴜʀ ꜰᴀᴠᴏᴜʀɪᴛᴇ ꜱᴀɪɴᴛ. ” - ʟᴀꜱᴛ ʀɪᴛᴇꜱ - ††† (ᴄʀᴏꜱꜱᴇꜱ)</i> </p>
 
 ---
 
