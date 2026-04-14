@@ -36,8 +36,8 @@
   ꜰᴀɴᴅᴏᴍꜱ / ɪɴꜰᴏ ɪ'ᴍ ɪɴᴛᴏ & ᴅɴɪ ɪɴ  
   <a href="https://www.patreon.com/c/vveskerrr/about">
     <img src="https://img.shields.io/badge/patreon-73444F?style=flat-square&logo=patreon&logoColor=white">
-  </a>
-</p>
+  </a> ⟵ ᴄʟɪᴄᴋ ᴍᴇ!
+</p> 
 
 †
 
