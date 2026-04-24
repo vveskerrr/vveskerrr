@@ -14,60 +14,32 @@
 <p align="center"> <i>“ ᴄᴀɴ ɪ ʙᴇ ʏᴏᴜʀ ꜱᴀᴠɪᴏᴜʀ, ɪ'ʟʟ ʙᴇ ʏᴏᴜʀ ꜰᴀᴠᴏᴜʀɪᴛᴇ ꜱᴀɪɴᴛ. ” - ʟᴀꜱᴛ ʀɪᴛᴇꜱ - ††† (ᴄʀᴏꜱꜱᴇꜱ)</i> </p>
 
 ---
+<img width="1037" height="500" alt="8abba883-f4fc-450a-aa2f-a01b1cc4b754" src="https://github.com/user-attachments/assets/44f3a603-1394-443d-97a1-685dfa9ca260" />
 
 <p align="center">
-  <img src="https://img.shields.io/badge/ɴᴀᴍᴇ:-ᴡɪᴛᴡᴇʀ 𐀔 ᴡᴇꜱʟᴇʏʀ-73444F?style=for-the-badge">
-  <img src="https://img.shields.io/badge/ᴀɢᴇ:-23-73444F?style=for-the-badge">
-  <img src="https://img.shields.io/badge/ᴘʀᴏɴᴏᴜɴꜱ:-ᴛʜᴇʏ/ᴛʜᴇᴍ-73444F?style=for-the-badge">
-  <img src="https://img.shields.io/badge/ɴᴏᴛᴇꜱ:-ᴅɪᴅ (ᴘ.ᴅɪᴅ) | ʙᴘᴅ | ᴄᴘᴛꜱᴅ | ᴇɴᴅᴏꜱ ᴅɴɪ-73444F?style=for-the-badge">
-</p>
-
-
-  
-
-<p align="center">
-  <img src="https://img.shields.io/badge/ᴇxᴛʀᴀꜱ:-73444F?style=flat-square">
-</p>
-<p align="center">
-  ᴀᴠɪᴅ ᴛᴀxɪᴅᴇʀᴍʏ ᴄᴏʟʟᴇᴄᴛᴏʀ | ᴇxᴏᴛɪᴄ ᴘᴀʀʀᴏᴛ & ᴘɪɢᴇᴏɴ ᴏᴡɴᴇʀ / ʙʀᴇᴇᴅᴇʀ  
-
-  <p align="center">
-  [ɪ ᴄʀᴇᴀᴛᴇ ᴄʜᴀʀᴀᴄᴛᴇʀ-ɪɴꜱᴘɪʀᴇᴅ ᴘʟᴀʏʟɪꜱᴛꜱ ᴏɴ ꜱᴘᴏᴛɪꜰʏ]
-</p>
-
-<p align="center">
-  ꜰᴀɴᴅᴏᴍꜱ / ɪɴꜰᴏ ɪ'ᴍ ɪɴᴛᴏ & ᴅɴɪ ɪɴ  
-  <a href="https://www.patreon.com/c/vveskerrr/about">
-    <img src="https://img.shields.io/badge/patreon-73444F?style=flat-square&logo=patreon&logoColor=white">
-  </a> ⟵ ᴄʟɪᴄᴋ ᴍᴇ!
+  ꜰᴀɴᴅᴏᴍꜱ / ɪɴꜰᴏ ɪ'ᴍ ɪɴᴛᴏ & ᴅɴɪ ʟɪꜱᴛ ᴀᴠᴀɪʟᴀʙʟᴇ ɪɴ ᴘᴀᴛʀᴇᴏɴ
 </p> 
 
-†
 
+<p align="center">
+  <a href="https://www.patreon.com/c/vveskerrr/about">
+    <img src="https://img.shields.io/badge/─ ᴘᴀᴛʀᴇᴏɴ ─-73444F?style=flat-square">
+  </a>
+  &nbsp;&nbsp;
+  <a href="https://www.roblox.com/users/61306832/profile">
+    <img src="https://img.shields.io/badge/─ ʀᴏʙʟᴏx ─-73444F?style=flat-square">
+  </a>
+  &nbsp;&nbsp;
+  <a href="https://open.spotify.com/user/m1l7gnhbf4tagx0kil5uocuqn">
+    <img src="https://img.shields.io/badge/─ ꜱᴘᴏᴛɪꜰʏ ─-73444F?style=flat-square">
+  </a>
+  &nbsp;&nbsp;
+  <a href="https://vveskerrr.atabook.org/">
+    <img src="https://img.shields.io/badge/─ ᴀᴛᴀʙᴏᴏᴋ ─-73444F?style=flat-square">
+  </a>
+</p>
 
-<img src="https://img.shields.io/badge/-ꜰᴀᴄᴛꜱ;-73444F?style=for-the-badge">
-ɪ’ᴍ ᴏᴘᴇɴ ᴛᴏ ᴀ ᴡɪᴅᴇ ʀᴀɴɢᴇ ᴏꜰ ᴅʏɴᴀᴍɪᴄꜱ, ʙᴜᴛ ɪ ʜᴀᴠᴇ ᴄʟᴇᴀʀ ʙᴏᴜɴᴅᴀʀɪᴇꜱ. ᴀɴʏᴛʜɪɴɢ ɪɴᴠᴏʟᴠɪɴɢ ɴᴏɴ-ᴄᴏɴ / ɪɴᴄ3ꜱᴛ / ɢʀ##ᴍɪɴɢ / ᴏʀ ᴀᴅᴜʟᴛ × ᴍɪɴᴏʀ ᴄᴏɴᴛᴇɴᴛ ɪꜱ ꜱᴛʀɪᴄᴛʟʏ ᴏꜰꜰ-ʟɪᴍɪᴛꜱ. ɪ ᴋɴᴏᴡ ᴡʜᴇʀᴇ ᴛᴏ ᴅʀᴀᴡ ᴛʜᴇ ʟɪɴᴇ ᴀɴᴅ ꜱᴛɪᴄᴋ ᴛᴏ ɪᴛ.
-
-
-
-
-†
-
-
-ɪ ɪɴᴅᴜʟɢᴇ ɪɴ:  
-ᴛᴏxɪᴄ ʏᴀᴏɪ / ᴠɪʟʟᴀɪɴ × ʜᴇʀᴏ / ᴠɪʟʟᴀɪɴ × ᴠɪʟʟᴀɪɴ / ᴇɴᴇᴍɪᴇꜱ ᴛᴏ ʟᴏᴠᴇʀꜱ / ʀɪᴠᴀʟꜱ ᴛᴏ ʟᴏᴠᴇʀꜱ / ᴄʜᴀʀᴀᴄᴛᴇʀ ᴄʀᴏꜱꜱᴏᴠᴇʀꜱ / ᴍᴏɴꜱᴛᴇʀ × ʜᴜᴍᴀɴ (ᴡᴇʀᴇᴡᴏʟᴠᴇꜱ, ᴀɴᴛʜʀᴏ ꜱʜᴀᴘᴇꜱʜɪꜰᴛᴇʀꜱ ᴇᴛᴄ.)
-ᴛʜᴀᴛ ꜱᴀɪᴅ, ɪꜰ ᴀ ꜱʜɪᴘ ɪ ʟɪᴋᴇ ꜰᴀʟʟꜱ ɪɴᴛᴏ ᴅᴀʀᴋᴇʀ ᴏʀ ᴍᴏʀᴇ ᴛᴀʙᴏᴏ ᴛᴇʀʀɪᴛᴏʀʏ ʟɪᴋᴇ ᴛʜᴇꜱᴇ ɪ ᴋᴇᴇᴘ ᴛʜᴀᴛ ɪɴᴛᴇʀᴇꜱᴛ ᴘʀɪᴠᴀᴛᴇ ᴀɴᴅ ᴅᴏɴ’ᴛ ᴅɪꜱᴄᴜꜱꜱ ɪᴛ ᴏᴘᴇɴʟʏ.
-ʏᴏᴜ ᴄᴀɴ ꜰɪɴᴅ ᴛʜᴇ ᴇxᴀᴍᴘʟᴇꜱ ᴏꜰ ꜱʜɪᴘꜱ ɪ ʟɪᴋᴇ ɪɴ ᴍʏ ᴘᴀᴛʀᴇᴏɴ 
-
-†
-
-ᴘʟᴇᴀꜱᴇ ᴅᴏɴᴛ ᴀᴅᴅ ᴍᴇ ᴏɴ ᴘᴛ ɪꜰ ʏᴏᴜ'ʀᴇ ɴᴏᴛ ɢᴏɪɴɢ ᴛᴏ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ ᴀꜰᴛᴇʀ 2 ᴡᴇᴇᴋꜱ. ɪ ʜᴀᴛᴇ ᴀʟᴡᴀʏꜱ ʙᴇɪɴɢ ᴛʜᴇ ᴏɴᴇ ɪɴɪᴛɪᴀᴛɪɴɢ ᴄᴏɴᴠᴇʀꜱᴀᴛɪᴏɴ. ɪꜰ ʏᴏᴜ ᴡᴀɴᴛ ᴛᴏ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ ᴏᴜᴛꜱɪᴅᴇ ᴏꜰ ᴘᴛ [ᴀꜱ ɪ ᴛᴀᴋᴇ ʜᴜɢᴇ 4+ ᴍᴏɴᴛʜ ɢᴀᴘꜱ ꜰʀᴏᴍ ᴛʜᴇ ɢᴀᴍᴇ ᴀᴛ ᴛɪᴍᴇꜱ] ᴀꜱᴋ ᴍᴇ ꜰᴏʀ ꜱᴏᴄɪᴀʟꜱ
-
-
-†
-
-ᴡʜᴇʀᴇ ɪ ʟɪɴɢᴇʀ:
-ꜱᴇᴇɴ ᴀʙᴏᴠᴇ ꜱᴘᴀᴡɴ, ᴏɴ ᴛʜᴇ ᴄʟɪꜰꜰ, ᴏʀ ɴᴇᴀʀ ᴛʜᴇ ᴅᴄ/ʜᴇʀᴏ/ᴍᴀʀᴠᴇʟ, ʀᴇ, ꜱᴘɴ, ᴊᴊᴋ, ᴄᴏᴅ, ᴏᴜᴛʟᴀꜱᴛ & ꜱʟᴀꜱʜᴇʀ/ʜᴏʀʀᴏʀ ꜰᴀɴᴅᴏᴍꜱ
+<img width="1037" height="600" alt="3b4cd732-7087-4dc6-9b8e-8cbc055136b1" src="https://github.com/user-attachments/assets/1b761ffb-d231-4b80-8790-b7e3f9dcdcca" />
 
  
                    𝙺𝚞𝚍𝚘𝚜 : ʙᴇʟᴏᴠᴇᴅ; [![Luci](https://img.shields.io/badge/Luci-73444F?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/mvrninstar/about) & ᴇᴠɪʟ ᴄʟᴏꜱᴇ ɢᴀʏ; [![ᴏᴊ](https://img.shields.io/badge/ᴏᴊ-73444F?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/u68838958/about)
