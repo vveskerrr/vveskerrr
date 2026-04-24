@@ -40,6 +40,16 @@
   <a href="https://vveskerrr.atabook.org/">
     <img src="https://img.shields.io/badge/─ ᴀᴛᴀʙᴏᴏᴋ ─-73444F?style=flat-square">
   </a>
+  &nbsp;&nbsp;
+  <a href="https://guns.lol/vvesker">
+    <img src="https://img.shields.io/badge/─ ɢᴜɴꜱ.ʟᴏʟ ─-73444F?style=flat-square">
+  </a>
+  &nbsp;&nbsp;
+  <a href="https://vveskerr.carrd.co/">
+    <img src="https://img.shields.io/badge/─ ᴄᴀʀʀᴅ ─ Unfinished-73444F?style=flat-square">
+  </a>
+</p>
+  
 </p>
 <p align="center">
   †
