@@ -14,8 +14,11 @@
 <p align="center"> <i>“ ᴄᴀɴ ɪ ʙᴇ ʏᴏᴜʀ ꜱᴀᴠɪᴏᴜʀ, ɪ'ʟʟ ʙᴇ ʏᴏᴜʀ ꜰᴀᴠᴏᴜʀɪᴛᴇ ꜱᴀɪɴᴛ. ” - ʟᴀꜱᴛ ʀɪᴛᴇꜱ - ††† (ᴄʀᴏꜱꜱᴇꜱ)</i> </p>
 
 ---
-<img width="1037" height="500" alt="8abba883-f4fc-450a-aa2f-a01b1cc4b754" src="https://github.com/user-attachments/assets/44f3a603-1394-443d-97a1-685dfa9ca260" />
-
+<p align="center">
+<img width="800" height="400" alt="8abba883-f4fc-450a-aa2f-a01b1cc4b754" src="https://github.com/user-attachments/assets/44f3a603-1394-443d-97a1-685dfa9ca260" />
+<p align="center">
+  †
+  
 <p align="center">
   ꜰᴀɴᴅᴏᴍꜱ / ɪɴꜰᴏ ɪ'ᴍ ɪɴᴛᴏ & ᴅɴɪ ʟɪꜱᴛ ᴀᴠᴀɪʟᴀʙʟᴇ ɪɴ ᴘᴀᴛʀᴇᴏɴ
 </p> 
@@ -38,12 +41,25 @@
     <img src="https://img.shields.io/badge/─ ᴀᴛᴀʙᴏᴏᴋ ─-73444F?style=flat-square">
   </a>
 </p>
+<p align="center">
+  †
 
-<img width="1037" height="600" alt="3b4cd732-7087-4dc6-9b8e-8cbc055136b1" src="https://github.com/user-attachments/assets/1b761ffb-d231-4b80-8790-b7e3f9dcdcca" />
+<img width="800" height="600" alt="3b4cd732-7087-4dc6-9b8e-8cbc055136b1" src="https://github.com/user-attachments/assets/1b761ffb-d231-4b80-8790-b7e3f9dcdcca" />
 
- 
-                   𝙺𝚞𝚍𝚘𝚜 : ʙᴇʟᴏᴠᴇᴅ; [![Luci](https://img.shields.io/badge/Luci-73444F?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/mvrninstar/about) & ᴇᴠɪʟ ᴄʟᴏꜱᴇ ɢᴀʏ; [![ᴏᴊ](https://img.shields.io/badge/ᴏᴊ-73444F?style=flat&logo=patreon&logoColor=white)](https://www.patreon.com/c/u68838958/about)
+<p align="center">
+  †
 
+<p align="center">
+  𝙺𝚞𝚍𝚘𝚜 : ʙᴇʟᴏᴠᴇᴅ; 
+  <a href="https://www.patreon.com/c/mvrninstar/about">
+    <img src="https://img.shields.io/badge/Luci-73444F?style=flat&logo=patreon&logoColor=white">
+  </a>
+  &nbsp; &amp; &nbsp;
+  ᴇᴠɪʟ ᴄʟᴏꜱᴇ ɢᴀʏ; 
+  <a href="https://www.patreon.com/c/u68838958/about">
+    <img src="https://img.shields.io/badge/ᴏᴊ-73444F?style=flat&logo=patreon&logoColor=white">
+  </a>
+</p>
 
 ---
 
