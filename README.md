@@ -8,10 +8,19 @@
 
 </p>
 
+                           ![](https://komarev.com/ghpvc/?username=vveskerrr&label=Kill+Count&color=73444F&style=for-the-badge)
+
 <p align="center">
   <img src="https://readme-typing-svg.herokuapp.com?color=73444F&center=true&vCenter=true&lines=ᴛʜᴇ+ᴍᴀꜱᴛᴇʀᴍɪɴᴅ;ᴛʜᴇ+ʜᴇʀᴇᴛɪᴄ+ᴡᴏʟꜰ;ᴜʀᴏʙᴏʀᴏꜱ">
 
 <p align="center"> <i>“ ᴄᴀɴ ɪ ʙᴇ ʏᴏᴜʀ ꜱᴀᴠɪᴏᴜʀ, ɪ'ʟʟ ʙᴇ ʏᴏᴜʀ ꜰᴀᴠᴏᴜʀɪᴛᴇ ꜱᴀɪɴᴛ. ” - ʟᴀꜱᴛ ʀɪᴛᴇꜱ - ††† (ᴄʀᴏꜱꜱᴇꜱ)</i> </p>
+
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=m1l7gnhbf4tagx0kil5uocuqn&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=m1l7gnhbf4tagx0kil5uocuqn&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color=73444F&bar_color_cover=false">
+  </a>
+</p>
+
 
 ---
 <p align="center">
@@ -73,13 +82,6 @@
 
 ---
 
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=m1l7gnhbf4tagx0kil5uocuqn&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=m1l7gnhbf4tagx0kil5uocuqn&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color=73444F&bar_color_cover=false">
-  </a>
-</p>
-
-
 
 <p align="center">
   <img src="https://64.media.tumblr.com/8bfbda49a622066ac423e30163f052b3/tumblr_nr55m6i7gw1qdxux9o1_500.gif">
@@ -93,5 +95,4 @@
   </a>
 </p>
 
-                           ![](https://komarev.com/ghpvc/?username=vveskerrr&label=Kill+Count&color=73444F&style=for-the-badge)
 
