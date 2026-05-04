@@ -8,7 +8,7 @@
 
 </p>
 
-                           ![](https://komarev.com/ghpvc/?username=vveskerrr&label=Kill+Count&color=73444F&style=for-the-badge)
+                            ![](https://komarev.com/ghpvc/?username=vveskerrr&label=Kill+Count&color=73444F&style=for-the-badge)
 
 <p align="center">
   <img src="https://readme-typing-svg.herokuapp.com?color=73444F&center=true&vCenter=true&lines=ᴛʜᴇ+ᴍᴀꜱᴛᴇʀᴍɪɴᴅ;ᴛʜᴇ+ʜᴇʀᴇᴛɪᴄ+ᴡᴏʟꜰ;ᴜʀᴏʙᴏʀᴏꜱ">
