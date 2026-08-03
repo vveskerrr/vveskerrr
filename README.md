@@ -58,6 +58,10 @@
     <img src="https://img.shields.io/badge/─ ᴄᴀʀʀᴅ ─ Unfinished-73444F?style=flat-square">
   </a>
 </p>
+
+<p align="center">
+  ɪ ᴍᴀᴋᴇ ᴄʜᴀʀᴀᴄᴛᴇʀ / ꜱʜɪᴘ ꜱᴘᴏᴛɪꜰʏ ᴘʟᴀʏʟɪꜱᴛꜱ. ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄʜᴇᴄᴋ ᴛʜᴇᴍ ᴏᴜᴛ
+</p> 
   
 </p>
 <p align="center">
