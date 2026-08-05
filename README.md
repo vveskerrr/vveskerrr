@@ -1,5 +1,6 @@
 
 
+
 <p align="center">
   <img src="https://readme-typing-svg.herokuapp.com?color=492020&center=true&vCenter=true&width=600&pause=500&speed=200&size=30&lines=████████████████;𝓐𝓒𝓒𝓔𝓢𝓢𝓘𝓝𝓖;𝓕𝓘𝓛𝓔+𝓕𝓞𝓤𝓝𝓓;𝓒𝓐𝓢𝓔+𝓕𝓘𝓛𝓔:+𝓦𝓐𝓡𝓓𝓢𝓒𝓤𝓜">
 
@@ -90,7 +91,7 @@
 
 
 <p align="center">
-  <img width="800" height="300" alt="8abba883-f4fc-450a-aa2f-a01b1cc4b754" src="https://github.com/user-attachments/assets/f835e9eb-b62f-4d45-a1ec-32f429f85567" />
+  <img width="800" height="300" alt="8abba883-f4fc-450a-aa2f-a01b1cc4b754" src="https://github.com/user-attachments/assets/464378de-3b57-4ec0-ade6-b57b20141b5f" />
 </p>
 
 
