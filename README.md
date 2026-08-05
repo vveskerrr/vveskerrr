@@ -25,7 +25,7 @@
 
 ---
 <p align="center">
-<img width="800" height="400" alt="8abba883-f4fc-450a-aa2f-a01b1cc4b754" src="https://github.com/user-attachments/assets/44f3a603-1394-443d-97a1-685dfa9ca260" />
+<img width="800" height="500" alt="8abba883-f4fc-450a-aa2f-a01b1cc4b754" src="https://github.com/user-attachments/assets/40dcaa95-3414-4a13-b66a-4534d6757844" />
 <p align="center">
   †
   
@@ -66,11 +66,12 @@
   
 </p>
 <p align="center">
-  †
 
-<img width="800" height="600" alt="3b4cd732-7087-4dc6-9b8e-8cbc055136b1" src="https://github.com/user-attachments/assets/1b761ffb-d231-4b80-8790-b7e3f9dcdcca" />
+
+<img width="800" height="500" alt="3b4cd732-7087-4dc6-9b8e-8cbc055136b1" src="https://github.com/user-attachments/assets/9c8354f0-527f-4fbb-bac3-56f08f3b4e64" />
 
 <p align="center">
+  †
   †
 
 <p align="center">
