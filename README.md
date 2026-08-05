@@ -1,11 +1,10 @@
 
-<p align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?color=73444F&center=true&vCenter=true&width=600&pause=500&speed=200&size=30&lines=████████████████;ACCESSING...;FILE+FOUND">
-</p>
 
-<h1 align="center">𝒞𝒜𝒮𝐸𝐹𝐼𝐿𝐸: 𝒲𝔞𝔯𝔡𝔢𝔫</h1>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/bc0f4a18-b485-457d-a758-15f914dc4af2" width="45%"
+  <img src="https://readme-typing-svg.herokuapp.com?color=492020&center=true&vCenter=true&width=600&pause=500&speed=200&size=30&lines=████████████████;𝓐𝓒𝓒𝓔𝓢𝓢𝓘𝓝𝓖;𝓕𝓘𝓛𝓔+𝓕𝓞𝓤𝓝𝓓;𝓒𝓐𝓢𝓔+𝓕𝓘𝓛𝓔:+𝓦𝓐𝓡𝓓𝓢𝓒𝓤𝓜">
+
+<p align="center">
+<img width="1300" height="364" alt="Wardscum" src="https://github.com/user-attachments/assets/d42d6e41-dd82-4e1c-a537-35426fb0c8a8" />
     
 <p align="center">
 </p>
