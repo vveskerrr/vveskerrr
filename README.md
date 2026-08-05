@@ -2,16 +2,17 @@
   <img src="https://readme-typing-svg.herokuapp.com?color=73444F&center=true&vCenter=true&width=600&pause=500&speed=200&size=30&lines=████████████████;ACCESSING...;FILE+FOUND">
 </p>
 
-<h1 align="center">𝒞𝒜𝒮𝐸𝐹𝐼𝐿𝐸: 𝒲𝐸𝒮𝒦𝐸𝑅</h1>
+<h1 align="center">𝒞𝒜𝒮𝐸𝐹𝐼𝐿𝐸: 𝒲𝔞𝔯𝔡𝔢𝔫</h1>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/bc0f4a18-b485-457d-a758-15f914dc4af2" width="45%"
-
+    
+<p align="center">
 </p>
 
                           ![](https://komarev.com/ghpvc/?username=vveskerrr&label=Kill+Count&color=73444F&style=for-the-badge)
 
 <p align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?color=73444F&center=true&vCenter=true&lines=ᴛʜᴇ+ᴍᴀꜱᴛᴇʀᴍɪɴᴅ;ᴛʜᴇ+ʜᴇʀᴇᴛɪᴄ+ᴡᴏʟꜰ;ᴜʀᴏʙᴏʀᴏꜱ">
+  <img src="https://readme-typing-svg.herokuapp.com?color=73444F&center=true&vCenter=true&lines=ꜱᴛᴀɢ+ꜱᴛᴀʟᴋᴇʀ;ᴛʜᴇ+ᴀɴᴛʟᴇʀᴇᴅ+ʙᴜᴛᴄʜᴇʀ;ᴛᴡᴇʟᴠᴇ-ᴘᴏɪɴᴛ+ᴇxᴇᴄᴜᴛɪᴏɴᴇʀ">
 
 <p align="center"> <i>“ ᴄᴀɴ ɪ ʙᴇ ʏᴏᴜʀ ꜱᴀᴠɪᴏᴜʀ, ɪ'ʟʟ ʙᴇ ʏᴏᴜʀ ꜰᴀᴠᴏᴜʀɪᴛᴇ ꜱᴀɪɴᴛ. ” - ʟᴀꜱᴛ ʀɪᴛᴇꜱ - ††† (ᴄʀᴏꜱꜱᴇꜱ)</i> </p>
 
@@ -88,12 +89,13 @@
 
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/8bfbda49a622066ac423e30163f052b3/tumblr_nr55m6i7gw1qdxux9o1_500.gif">
+  <img src="https://github.com/user-attachments/assets/52b0fcd0-2cec-4a1a-982d-fc6f89509eb3">
 </p>
 
 
 <p align="center">
-  <i>“ ɪ ᴅɪᴇᴅ ᴏɴᴄᴇ. ɪ ᴡɪʟʟ ɴᴇᴠᴇʀ ꜰᴏʀɢᴇᴛ ᴛʜᴇ ᴄᴏʟᴅ, ᴅᴀʀᴋ ꜰɪɴɢᴇʀꜱ ᴏꜰ ᴅᴇᴀᴛʜ ʀᴇᴀᴄʜɪɴɢ ᴏᴜᴛ ꜰᴏʀ ᴍᴇ. . . ” - ᴀʟʙᴇʀᴛ ᴡᴇꜱᴋᴇʀ - ʀᴇʙɪʀᴛʜ 1 </i>
+  <i>“ ᴛʜᴇ ꜰᴏʀᴇꜱᴛ ᴅᴏᴇꜱ ɴᴏᴛ ʜɪᴅᴇ ᴛʜᴇ ʜᴇʀᴅ; ɪᴛ ᴏɴʟʏ ᴄᴏɴᴄᴇᴀʟꜱ ᴛʜᴇ ʜᴜɴᴛᴇʀ. ” - ꜱʜᴀɴᴇ ᴍᴀɢᴜɪʀᴇ [ᴜɴᴛᴀᴍᴇᴅ ꜱʟᴀꜱʜᴇʀ!ᴀᴜ]
+</i>
 </p>
 
   </a>
