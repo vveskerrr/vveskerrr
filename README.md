@@ -26,13 +26,29 @@
 
 ---
 <p align="center">
-<img width="800" height="500" alt="8abba883-f4fc-450a-aa2f-a01b1cc4b754" src="https://github.com/user-attachments/assets/40dcaa95-3414-4a13-b66a-4534d6757844" />
+$\color{#c5a796}{ᴡɪᴛᴡᴇʀ \;/\; ᴡᴇꜱʟʏᴇʀ}$
+</p>
+
 <p align="center">
-  †
+$\color{#c5a796}{₂₃ \;|\; ᴛʜᴇʏ/ᴛʜᴇᴍ \;|\; ᴅɪᴅ\;(ᴘ.ᴅɪᴅ)}$
+</p>
+
+<p align="center">
+$\color{#c5a796}{ʙᴘᴅ \;|\; ᴄᴘᴛꜱᴅ \;|\; ᴇɴᴅᴏꜱ \;ᴅɴɪ}$
+</p>
+
+<p align="center">
+$\color{#2e1928}{††}$
+</p>
+
   
 <p align="center">
-  ꜰᴀɴᴅᴏᴍꜱ / ɪɴꜰᴏ ɪ'ᴍ ɪɴᴛᴏ & ᴅɴɪ ʟɪꜱᴛ ᴀᴠᴀɪʟᴀʙʟᴇ ɪɴ ᴘᴀᴛʀᴇᴏɴ
-</p> 
+$\color{#875852}{Fandoms \;/\; Info\ I'm\ Into\ \&\ DNI\ List\ Available\ on\ Patreon}$
+</p>
+
+<p align="center">
+$\color{#692a2c}{[I\ Make\ Character/Ship\ Spotify\ Playlists.\ Feel\ Free\ To\ Check\ Them\ Out.]}$
+</p>
 
 
 <p align="center">
@@ -60,20 +76,58 @@
     <img src="https://img.shields.io/badge/─ ᴄᴀʀʀᴅ ─ Unfinished-73444F?style=flat-square">
   </a>
 </p>
-
-<p align="center">
-  ɪ ᴍᴀᴋᴇ ᴄʜᴀʀᴀᴄᴛᴇʀ / ꜱʜɪᴘ ꜱᴘᴏᴛɪꜰʏ ᴘʟᴀʏʟɪꜱᴛꜱ. ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄʜᴇᴄᴋ ᴛʜᴇᴍ ᴏᴜᴛ
-</p> 
   
 </p>
-<p align="center">
-
-
-<img width="800" height="500" alt="3b4cd732-7087-4dc6-9b8e-8cbc055136b1" src="https://github.com/user-attachments/assets/9c8354f0-527f-4fbb-bac3-56f08f3b4e64" />
 
 <p align="center">
-  †
-  †
+$\color{#2e1928}{††}$
+</p>
+
+<p align="center">
+$\color{#ad9e8f}{I'm\ Open\ To\ A\ Wide\ Range\ Of\ Dynamics,\ But\ I\ Have\ Clear\ Boundaries.}$
+</p>
+
+<p align="center">
+$\color{#ad9e8f}{Anything\ Involving\ Non\!-\!Con,\ Incest,\ Grooming,\ Or\ Adult\ ×\ Minor\ Content\ Is\ Strictly\ Off\!-\!Limits.}$
+</p>
+
+<p align="center">
+$\color{#ad9e8f}{I\ Enjoy\ Toxic\ Yaoi,\ Villain × Hero,\ Villain × Villain,\ Enemies\ To\ Lovers,\ Rivals\ To\ Lovers,\ Character\ Crossovers,\ And\ Monster × Human\ Dynamics.}$
+</p>
+
+<p align="center">
+$\color{#875852}{If\ A\ Ship\ I\ Enjoy\ Falls\ Into\ Darker\ Territory,\ I\ Prefer\ To\ Keep\ That\ Interest\ Private.}$
+</p>
+
+<p align="center">
+$\color{#875852}{Examples\ Of\ Ships\ I\ Like\ Can\ Be\ Found\ On\ My\ Patreon.}$
+</p>
+
+<p align="center">
+$\color{#2e1928}{††}$
+</p>
+
+<p align="center">
+$\color{#692a2c}{Please\ Don't\ Add\ Me\ On\ PT\ If\ You\ Aren't\ Going\ To\ Talk\ To\ Me\ After\ Two\ Weeks.}$
+</p>
+
+<p align="center">
+$\color{#692a2c}{If\ You\ Want\ To\ Stay\ In\ Contact\ Outside\ Of\ PT,\ Feel\ Free\ To\ Ask\ Me\ For\ My\ Socials.}$
+</p>
+
+<p align="center">
+$\color{#2e1928}{††}$
+</p>
+
+<p align="center">
+$\color{#ad9e8f}{You'll\ Usually\ Find\ Me\ Around\ The\ DC,\ Marvel,\ Resident\ Evil,\ Supernatural,\ JJK,\ COD,\ Outlast,\ And\ Slasher/Horror\ Fandoms.}$
+</p>
+
+</p>
+
+<p align="center">
+$\color{#2e1928}{††}$
+</p>
 
 <p align="center">
   𝙺𝚞𝚍𝚘𝚜 : ʙᴇʟᴏᴠᴇᴅ; 
