@@ -133,14 +133,14 @@ $\color{#2e1928}{††}$
 
 <p align="center">
 $\color{#875852}{Kudos:\ Beloved;}$
-  <a href="https://www.patreon.com/c/mvrninstar/about">
-    <img src="https://img.shields.io/badge/Luci-73444F?style=flat&logo=patreon&logoColor=white">
-  </a>
-  &nbsp; &amp; &nbsp;
+<a href="https://www.patreon.com/c/mvrninstar/about">
+  <img src="https://img.shields.io/badge/Luci-73444F?style=flat&logo=patreon&logoColor=white">
+</a>
+&nbsp;&nbsp;
 $\color{#875852}{Kudos:\ Evil\ Gay;}$
-  <a href="https://www.patreon.com/c/u68838958/about">
-    <img src="https://img.shields.io/badge/ᴏᴊ-73444F?style=flat&logo=patreon&logoColor=white">
-  </a>
+<a href="https://www.patreon.com/c/u68838958/about">
+  <img src="https://img.shields.io/badge/ᴏᴊ-73444F?style=flat&logo=patreon&logoColor=white">
+</a>
 </p>
 
 ---
