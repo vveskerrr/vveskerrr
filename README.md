@@ -15,7 +15,9 @@
 <p align="center">
   <img src="https://readme-typing-svg.herokuapp.com?color=73444F&center=true&vCenter=true&lines=ꜱᴛᴀɢ+ꜱᴛᴀʟᴋᴇʀ;ᴛʜᴇ+ᴀɴᴛʟᴇʀᴇᴅ+ʙᴜᴛᴄʜᴇʀ;ᴛᴡᴇʟᴠᴇ-ᴘᴏɪɴᴛ+ᴇxᴇᴄᴜᴛɪᴏɴᴇʀ">
 
-<p align="center"> <i>“ ᴄᴀɴ ɪ ʙᴇ ʏᴏᴜʀ ꜱᴀᴠɪᴏᴜʀ, ɪ'ʟʟ ʙᴇ ʏᴏᴜʀ ꜰᴀᴠᴏᴜʀɪᴛᴇ ꜱᴀɪɴᴛ. ” - ʟᴀꜱᴛ ʀɪᴛᴇꜱ - ††† (ᴄʀᴏꜱꜱᴇꜱ)</i> </p>
+<p align="center">
+$\color{#692A2C}{\mathsf{"Can\ I\ Be\ Your\ Saviour,\ I'll\ Be\ Your\ Favourite\ Saint." \;-\; Last\ Rites\;-\;\dagger\dagger\dagger\;(Crosses)}}$
+</p>
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=m1l7gnhbf4tagx0kil5uocuqn&redirect=true">
@@ -150,8 +152,7 @@ $\color{#2e1928}{††}$
 
 
 <p align="center">
-  <i>“ ᴛʜᴇ ꜰᴏʀᴇꜱᴛ ᴅᴏᴇꜱ ɴᴏᴛ ʜɪᴅᴇ ᴛʜᴇ ʜᴇʀᴅ; ɪᴛ ᴏɴʟʏ ᴄᴏɴᴄᴇᴀʟꜱ ᴛʜᴇ ʜᴜɴᴛᴇʀ. ” - ꜱʜᴀɴᴇ ᴍᴀɢᴜɪʀᴇ [ᴜɴᴛᴀᴍᴇᴅ ꜱʟᴀꜱʜᴇʀ!ᴀᴜ]
-</i>
+$\color{#692A2C}{\mathsf{"The\ Forest\ Does\ Not\ Hide\ The\ Herd;\ It\ Only\ Conceals\ The\ Hunter."\;-\;Shane\ Maguire\ [Untamed\ Slasher!AU]}}$
 </p>
 
   </a>
