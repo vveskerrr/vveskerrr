@@ -97,7 +97,7 @@ $\color{#73444F}{I\ Prefer\ To\ Keep\ NSFW\ Content\ Strictly\ Within\ Fictional
 <p align="center">
 $\color{#73444F}{If\ Your\ NSFW\ Interests\ Involve\ Eeal\ People\ Such\ As\ Footballers,\ F1/Motorsport\ Drivers,}$
 <br>
-$\color{#73444F}{Athletes,\ YouTubers,\ Kpop\ Idols,\ Or\ Other\ Public\ Figures,\ Please\ DNI\ With\ Me.}$
+$\color{#73444F}{Athletes,\ YouTubers,\ Singers,\ Kpop\ Idols,\ Or\ Other\ Public\ Figures,\ Please\ DNI\ With\ Me.}$
 </p>
 
   
