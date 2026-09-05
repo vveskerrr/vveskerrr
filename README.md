@@ -79,6 +79,7 @@ $\color{#692a2c}{[I\ Make\ Character/Ship\ Spotify\ Playlists.\ Feel\ Free\ To\ 
   </a>
 </p>
 
+---
 <p align="center">
 $\color{#2e1928}{††}$
 </p>
