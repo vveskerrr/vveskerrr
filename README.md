@@ -78,6 +78,27 @@ $\color{#692a2c}{[I\ Make\ Character/Ship\ Spotify\ Playlists.\ Feel\ Free\ To\ 
     <img src="https://img.shields.io/badge/─ ᴄᴀʀʀᴅ ─ Unfinished-73444F?style=flat-square">
   </a>
 </p>
+
+<p align="center">
+$\color{#2e1928}{††}$
+</p>
+
+<p align="center">
+$\color{#73444F}{RPF/NSFW\ DNI.}$
+</p>
+
+<p align="center">
+$\color{#73444F}{I\ separate\ actors\ from\ the\ fictional\ characters\ they\ portray.}$
+<br>
+$\color{#73444F}{I\ prefer\ to\ keep\ NSFW\ content\ strictly\ within\ fictional\ characters\ from\ shows/films.}$
+</p>
+
+<p align="center">
+$\color{#73444F}{If\ your\ NSFW\ interests\ involve\ real\ people\ such\ as\ footballers,\ F1/motorsport\ drivers,}$
+<br>
+$\color{#73444F}{YouTubers,\ Kpop\ idols,\ or\ other\ public\ figures,\ please\ DNI\ with\ me.}$
+</p>
+
   
 </p>
 
