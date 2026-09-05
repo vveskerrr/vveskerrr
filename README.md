@@ -85,7 +85,7 @@ $\color{#2e1928}{††}$
 </p>
 
 <p align="center">
-$\color{#73444F}{RPF NSFW\ DNI.}$
+$\color{#73444F}{RPF\ NSFW\ DNI.}$
 </p>
 
 <p align="center">
