@@ -85,19 +85,19 @@ $\color{#2e1928}{††}$
 </p>
 
 <p align="center">
-$\color{#73444F}{RPF/NSFW\ DNI.}$
+$\color{#73444F}{RPF NSFW\ DNI.}$
 </p>
 
 <p align="center">
-$\color{#73444F}{I\ separate\ actors\ from\ the\ fictional\ characters\ they\ portray.}$
+$\color{#73444F}{I\ Separate\ Actors\ From\ The\ Fictional\ Characters\ They\ Portray.}$
 <br>
-$\color{#73444F}{I\ prefer\ to\ keep\ NSFW\ content\ strictly\ within\ fictional\ characters\ from\ shows/films.}$
+$\color{#73444F}{I\ Prefer\ To\ Keep\ NSFW\ Content\ Strictly\ Within\ Fictional\ Characters\ From\ Shows/Films.}$
 </p>
 
 <p align="center">
-$\color{#73444F}{If\ your\ NSFW\ interests\ involve\ real\ people\ such\ as\ footballers,\ F1/motorsport\ drivers,}$
+$\color{#73444F}{If\ Your\ NSFW\ Interests\ Involve\ Eeal\ People\ Such\ As\ Footballers,\ F1/Motorsport\ Drivers,}$
 <br>
-$\color{#73444F}{YouTubers,\ Kpop\ idols,\ or\ other\ public\ figures,\ please\ DNI\ with\ me.}$
+$\color{#73444F}{Athletes,\ YouTubers,\ Kpop\ Idols,\ Or\ Other\ Public\ Figures,\ Please\ DNI\ With\ Me.}$
 </p>
 
   
