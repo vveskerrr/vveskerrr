@@ -75,7 +75,7 @@ $\color{#692a2c}{[I\ Make\ Character/Ship\ Spotify\ Playlists.\ Feel\ Free\ To\ 
   </a>
   &nbsp;&nbsp;
   <a href="https://vvesker.carrd.co/#">
-    <img src="https://img.shields.io/badge/─ ᴄᴀʀʀᴅ ─ Unfinished-73444F?style=flat-square">
+    <img src="https://img.shields.io/badge/─ ᴄᴀʀʀᴅ ─-73444F?style=flat-square">
   </a>
 </p>
 
